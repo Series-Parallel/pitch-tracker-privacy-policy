@@ -1,0 +1,1 @@
+pitch_tracker_praivacy_policy_for_chrome_web_store
